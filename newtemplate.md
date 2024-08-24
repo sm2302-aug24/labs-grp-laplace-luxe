@@ -19,7 +19,7 @@ Member No. 1 (ෆ˙ᵕ˙ෆ)
 Member No. 2 ⸜(｡˃ ᵕ ˂ )⸝♡
 
 |**Name**            |Siti Nur Rabiatul Adawiyah binti Sofpri|
-|:-------------------|:------------|
+|:-------------------|:------------:
 |**ID No.**          |21b2018|
 |**Fav Math Concept**|Butterfly Effect|
 |**Reasoning**       |It illustrates how small changes can have large impacts over time|
