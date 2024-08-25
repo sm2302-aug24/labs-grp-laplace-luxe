@@ -3,6 +3,16 @@
 
 ![Untitled design](https://github.com/user-attachments/assets/a6f48b5f-11a1-4876-b520-ff05f363e7d5)
 
+## Link to our members' profile:
+
+Member No. 1 - [Rabi'ah](github.com/biahros)
+
+Member No. 2 - [Rabiatul](github.com/rabiadawiyah)
+
+Member No. 3 - [Hanani](github.com/hnimono)
+
+## Our profile:
+
 Member No. 1 (ෆ˙ᵕ˙ෆ)
 
 |**Name**            |Rabi'ah Nabilah binti Muhammad Roslan|
