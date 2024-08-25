@@ -5,11 +5,11 @@
 
 ## Link to our members' profile:
 
-Member No. 1 - [Rabi'ah](github.com/biahros)
+Member No. 1 - [Rabi'ah](https://github.com/biahros)
 
-Member No. 2 - [Rabiatul](github.com/rabiadawiyah)
+Member No. 2 - [Rabiatul](https://github.com/rabiadawiyah)
 
-Member No. 3 - [Hanani](github.com/hnimono)
+Member No. 3 - [Hanani](https://github.com/hnimono)
 
 ## Our profile:
 
